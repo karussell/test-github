@@ -1,5 +1,3 @@
-Nice!
+Start over!
 
-Even Better! And yes, this as well?
-
-Lame!
+Something
